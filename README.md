@@ -1,0 +1,1 @@
+# Wise-Folder-Hider-Pro-Update
